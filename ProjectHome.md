@@ -1,0 +1,1 @@
+Plan landscape photographs using Google Maps
